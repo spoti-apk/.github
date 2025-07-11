@@ -1,1 +1,1 @@
-## [DOWNLOAD NOW](https://www.webintoapp.com/download/apk/313406/app-release.apk)
+## [DOWNLOAD NOW](https://modsfire.com/d/b9G3ky1HwV7ZL38)
